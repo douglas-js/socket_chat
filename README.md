@@ -10,3 +10,7 @@
 |--------------------|
 | Utilizei runtime: Node.js |
 | Pode utilizar minha source caso queira, ou fazer correções! |
+
+| 📲 Contato: |
+|-------------|
+| Discord: ravena#7426 |
