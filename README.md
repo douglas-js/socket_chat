@@ -13,4 +13,4 @@
 
 | 📲 Contato: |
 |-------------|
-| Discord: ravena#7426 |
+| Discord: cobra#4569 |
