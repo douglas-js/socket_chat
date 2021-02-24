@@ -13,4 +13,6 @@
 
 | 📲 Contato: |
 |-------------|
-| Discord: cobra#4569 |
+| Discord: cobra#1218 |
+| Instagram: @douglas.cobra |
+| TikTok: @cobra.douglas |
